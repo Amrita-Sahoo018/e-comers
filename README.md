@@ -1,1 +1,1 @@
-# e-comers
+# e-commers
